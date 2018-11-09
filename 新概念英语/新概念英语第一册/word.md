@@ -183,3 +183,91 @@ Is there any ... in/on that  ...?
 kettle n. 水壶
 teapot n. 茶壶
 boil v. 沸腾
+
+butcher n.卖肉的（屠夫）
+lamb n.羔羊肉
+steak n.牛排
+mince n.碎肉(肉馅)
+cabbage n.卷心菜
+lettuce n.莴笋
+bean n. 豆角
+grape n.葡萄
+peach n.桃
+
+climate n.气候
+pleasant adj.宜人的
+spring n.春季
+summer n.夏天
+autumn n.秋天
+winter n.冬天
+January n.1月
+February n.2月
+March n.3月
+April n.4月
+May n.5月
+June n.6月
+July n.7月
+August n.8月
+September n.9月
+October n.10月
+November n.11月
+December n.12月
+
+mail adj.温和的
+wet adj.潮湿的
+season n.季节
+rise v.升起
+
+at noon (midday) 正午
+
+o'click adv.点钟
+
+envelope n.信封
+chalk n.粉笔
+change n.零钱
+gule n.胶水
+pad n. 
+Is that all ?就这些吗？
+tongue n.舌头
+
+headache n.头疼
+earache n.耳疼
+toothache n.牙疼
+dentist n.牙医
+stomach ache 胃疼
+medicine n.药
+temperature n.温度
+measles n.麻疹
+mumps n.胰腺炎
+
+rich adj.油腻的,富有的
+remain v.保持
+for another two days 可达两天
+
+you mustn't 你不应该
+lean out of 身体探出
+half past ten 十点半
+Enjoy yourself 你自己好好玩吧
+
+greengrocer n.蔬菜水果零售商
+grocer n.食品杂杂货商
+absent adj. 缺席的
+country n.乡村
+
+How are you all keeping ? 你们身体都还好吧
+for the weekend 是指整个周末这几天的时间
+at the weekend 是强调时间的某一点
+Aren't you lucky! 你们真幸运
+
+reace n.比赛
+crowd n.人群
+hundreds of 数以百计的
+on the way 在...途中 one the way home 在回家途中 
+
+awful adj.令人讨厌的
+yesterday 昨天
+the day before yesterday 前天
+
+**72课程 还需要听**
+hurriedly adv.匆忙地
+greet v.问候
